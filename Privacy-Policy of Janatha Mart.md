@@ -34,4 +34,4 @@ Privacy Poilcy last updated on:
 29-05-2023
 
 Contact Information:
-Name: Maheswara Reddy Ph. No. 6291412188
+Name: Maheswara Reddy, Ph. No. 8317513695, Email: app.janathamart@gmail.com
